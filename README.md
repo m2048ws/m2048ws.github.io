@@ -1,7 +1,8 @@
 ## Do the hard work
 
 Roger Waters took to the stage in Berlin last week as part of his “This is not a drill” tour. 
-Since then, he has been labelled a Nazi, anti-Semite, and a Putin aficionado. 
+Since then, he has been labelled a Nazi, anti-Semite, and a Putin aficionado. There are other labels 
+too, like supporter of genocide and rapist of women and children, but they fall outside the scope of this text. 
 This is all over Twitter, but also found its way to more conventional news platforms. 
 For instance, the renowned liberal Swedish newspaper Dagens Nyheter published an article with a headline stating that Waters has been 
 flirting with Nazism: "German police investigate Roger Waters' Nazi flirtation on stage". 
