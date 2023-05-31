@@ -59,7 +59,7 @@ oppression and discrimination. Read about past wars and conflicts.
 Read about how past narratives have been proven false. Read about the Nuclear Scientists and what they are saying. 
 Read and think about how all parties, on all sides, are constantly lobbying. Read and think about the
 outcomes of unchecked hatred and intolerance. Think about the implications of voices being silenced or miscredited. 
-Read about the cold-war and how it ended. Read what is actually written and hear what is actually said. 
+Read what is actually written and hear what is actually said. 
 Give the benefit of the doubt. 
 Read and think about the importance of
 speaking up, however imperfect your voice might be. Read, read, read. Go the whole
