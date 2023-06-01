@@ -74,8 +74,11 @@ my deep personal belief that our willingness to do the hard work is all that lie
 between now and the next unimaginable disaster. 
 
 Look around. 
+
 Realise that unimaginable disasters are the norm. 
+
 Don't be afraid to care. 
+
 Choose your own ground.
 
 Magnus Eklund
