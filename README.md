@@ -55,7 +55,7 @@ Read, read, read. Read, well, _listen_ to Waters’ work. Avoid conclusions of o
 plague. Read what has been said about Waters since his Berlin concert. Find out who
 the powers involved are. Search for the origins of the misinterpretations, Read what 
 the powers involved are saying. Think about their motives.  Think about the requirements for 
-oppression and discrimination. Read about past wars and conflicts. 
+oppression and discrimination, especially when perpetrated by democracies. Read about past wars and conflicts. 
 Read about how past narratives have been proven false. Read about the Doomsday Clock. 
 Read and think about how all parties, on all sides, are constantly lobbying. Read and think about the
 outcomes of unchecked hatred and intolerance. Think about the implications of voices being silenced or miscredited.  
