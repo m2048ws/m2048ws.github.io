@@ -71,9 +71,12 @@ or a Putin supporter?
 
 As much as I care about Roger Waters, this is not about him or Pink Floyd at all. It is
 my deep personal belief that our willingness to do the hard work is all that lies
-between now and the next unimaginable disaster. Look around. Realise that unimaginable disasters 
-are the norm. Don't be afraid to care. Choose your own ground.
+between now and the next unimaginable disaster. 
 
+Look around. 
+Realise that unimaginable disasters are the norm. 
+Don't be afraid to care. 
+Choose your own ground.
 
 Magnus Eklund
 m@2048.ws
