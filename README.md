@@ -51,7 +51,7 @@ asked us all to do in his address to the UN Security Council in February this ye
 I implore the publisher of Dagens Nyheter and you, the reader, to do hard work. I regret to
 inform you, but there are no viable shortcuts here - they all lead in circles.
 
-Read, read, read. Read, no, listen to Waters’ work. Avoid conclusions of others like the
+Read, read, read. Read, well, _listen_ to Waters’ work. Avoid conclusions of others like the
 plague. Read what has been said about Waters since his Berlin concert. Find out who
 the powers involved are. Search for the origins of the misinterpretations, Read what 
 the powers involved are saying. Think about their motives.  Think about the requirements for 
@@ -62,7 +62,7 @@ outcomes of unchecked hatred and intolerance. Think about the implications of vo
 Read what is actually written and hear what is actually said. 
 Give the benefit of the doubt. 
 Read and think about the importance of
-speaking up, however imperfect your voice might be. Read, read, read. Go the whole
+speaking up, however imperfect your voice might be. Be honest and stay open. Read, read, read. Go the whole
 mile.
 
 Then, and only then, ask yourself the questions at hand: Has Roger Waters flirted
@@ -71,7 +71,8 @@ or a Putin supporter?
 
 As much as I care about Roger Waters, this is not about him or Pink Floyd at all. It is
 my deep personal belief that our willingness to do the hard work is all that lies
-between now and the next unimaginable disaster.
+between now and the next unimaginable disaster. Look around. Realise that unimaginable disasters 
+are the norm. Don't be afraid to care. Choose your own ground.
 
 
 Magnus Eklund
