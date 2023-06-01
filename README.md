@@ -56,7 +56,7 @@ plague. Read what has been said about Waters since his Berlin concert. Find out 
 the powers involved are. Search for the origins of the misinterpretations, Read what 
 the powers involved are saying. Think about their motives.  Think about the requirements for 
 oppression and discrimination. Read about past wars and conflicts. 
-Read about how past narratives have been proven false. Read about the Nuclear Scientists and what they are saying. 
+Read about how past narratives have been proven false. Read about the Doomsday Clock. 
 Read and think about how all parties, on all sides, are constantly lobbying. Read and think about the
 outcomes of unchecked hatred and intolerance. Think about the implications of voices being silenced or miscredited.  
 Read what is actually written and hear what is actually said. 
