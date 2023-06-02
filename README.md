@@ -81,5 +81,7 @@ Don't be afraid to care.
 
 Choose your own ground.
 
+RESIST
+
 Magnus Eklund
 m@2048.ws
